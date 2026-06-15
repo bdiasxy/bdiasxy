@@ -1,3 +1,5 @@
+## sou a Bruna
+
 - Gosto de dorama🌸​
 - Gosto de musica🎶​
 Gosto de me cuidar​💅​
